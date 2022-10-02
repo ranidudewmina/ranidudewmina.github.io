@@ -1,12 +1,13 @@
-# Sl-Programmers.Github.io
+# Raniya Official.Github.io
 
-## Official Website Of Tech With Dinuwa Youtube Channel
+## Official Website Of Ranidu Dewmina Youtube Channel
 
 ## Web Create and Devoloped By 
 
-* Mr.Dinuwa Admin Of Sl Programmers ( Owner Of TECH WITH DINUWA )
-* Z Hacker Admin Of Sl Programmers 
+* Mr.Ranidu Dewmina  ( Owner Of Raniya Official)
+* Study in Mo/Nisshanka Central College
+*From Madukotan Arawa
 
 ##  
 
- Link: [https://tech-with-dinuwa.github.io/Sl_Programers.Github.io/](https://tech-with-dinuwa.github.io/Sl_Programers.Github.io/)
+ Link: [https://raniduoffial.github.io/Ranidu Official.Github.io/]

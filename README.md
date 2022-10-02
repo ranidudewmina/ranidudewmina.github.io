@@ -1,4 +1,4 @@
-# Raniya Official.Github.io
+# raniyaofficial.Github.io
 
 ## Official Website Of Ranidu Dewmina Youtube Channel
 

@@ -10,4 +10,4 @@
 
 ##  
 
- Link: [https://raniduoffial.github.io/Ranidu Official.Github.io/]
+ Link: [https://raniduofficial.github.io/Ranidu Official.Github.io/]

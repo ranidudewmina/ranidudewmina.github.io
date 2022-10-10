@@ -7,6 +7,7 @@
 * Mr.Ranidu Dewmina  ( Owner Of Raniya Official)
 * Study in Mo/Nisshanka Central College
 * From Madukotan Arawa
+* Like and share...
 
 ##  
 

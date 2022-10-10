@@ -10,4 +10,4 @@
 
 ##  
 
- Link: [https://raniyaofficial.github.io]
+ Link: [https://rani.github.io]
